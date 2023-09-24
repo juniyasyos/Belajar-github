@@ -1,0 +1,1 @@
+Baca ya documentasi ya biar makin cepet paham :)
